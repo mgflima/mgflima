@@ -2,7 +2,7 @@
 - 👀 I’m interested in academic research, ecotoxicology, data analysis
 - 🌱 I’m currently learning obsidian.md to help in my academic research and writing
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me: mgf.lima@gmail.com
+- 📫 How to reach me: mgfrancolima@gmail.com
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: ...
 
